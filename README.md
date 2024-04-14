@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **lavish637728@gmail.com**
 
-- ⚡ Fun fact **I Think I'm Pricious**
+- ⚡ Fun fact **I Think I'm Pricious And it's Truth**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
